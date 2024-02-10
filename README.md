@@ -1,0 +1,1 @@
+# JoomShopping_Addon_JUMultiThumbs
